@@ -1,4 +1,4 @@
-# 
+# VIP degen coin sniper bot scripts para Mac OS | Instantáneo degen coin sniper bot scripts para PC Windows. Con comercio en tiempo real y cálculo de ganancias — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
